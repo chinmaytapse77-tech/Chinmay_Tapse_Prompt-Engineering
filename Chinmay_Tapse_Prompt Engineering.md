@@ -90,7 +90,7 @@ I sincerely hope our paths cross again in the future. I would love to stay conne
 Thank you again for your time and consideration.
 
 Warm regards,
-Chinmay Tap96
+Chinmay Tapse
 
 ---
 
@@ -113,7 +113,7 @@ I hold TechNova in high regard and would welcome the opportunity to reconnect if
 Thank you again for your consideration and for making the process such a positive experience.
 
 Best regards,
-Chinmay Tap96
+Chinmay Tapse
 
 ---
 
